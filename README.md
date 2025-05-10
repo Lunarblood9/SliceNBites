@@ -1,1 +1,2 @@
 # SliceNBites
+Located in the charming town of Upper Island Cove, Newfoundland, we craft mouthwatering, handmade cheesecakes with a perfect balance of rich flavor and creamy texture. From classic vanilla to unique, seasonal creations, every slice is made with love and the finest local ingredients. Whether you're celebrating a special occasion or simply indulging in a sweet treat, SliceN'Bites is your go-to destination for an unforgettable cheesecake experience.
